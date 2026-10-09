@@ -1,1 +1,1 @@
-# projeto2025_scm
+# projeto2025_scmmudanças realizadas em 08/10/2026
